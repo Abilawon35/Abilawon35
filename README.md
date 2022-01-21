@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Abilawon35
-- 👀 I’m interested in tradi'g
+- 👀 I’m interested in trading
 - 🌱 I’m currently learning trading 
 - 💞️ I’m looking to collaborate on trading 
 - 📫 How to reach me abeebabilawon1@gmail.com 
